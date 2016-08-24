@@ -1,4 +1,4 @@
-### Level 1 - Unit 2: Greetings and Introductions |
+### Level 1 - Unit 2: Greetings and Introductions
 
 | Spanish | English |
 | ------- | ------- |
